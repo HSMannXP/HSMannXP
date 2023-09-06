@@ -1,0 +1,2 @@
+- 👋 Hallo, Guten Tag. Ich bin HSMannXP.
+- 👀 Ich lerne gerne Programmiersspiele.
